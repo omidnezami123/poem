@@ -1,3 +1,3 @@
-Baking hot hillside
+Baking hot oven
 A small, tiny biscuit swims
-at the perfect lake
+in honey butter
