@@ -1,3 +1,3 @@
-Baking hot hillside
-A small, tiny biscuit swims
-at the perfect lake
+Attending Zoom class
+Through this covid pandemic
+that we all dislike
